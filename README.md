@@ -5,7 +5,7 @@
 - 💞️ I’m looking to collaborate with my team mates
 - 📫 How to reach me you can find me as: kiksvongrave in instagram and https://www.linkedin.com/in/karla-erika-soto-escorza-228567203/ in LinkedIn
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I'm in my 30's and trying to find my own path... never is too late![Karla erika soto escorza](https://github.com/KiksVonGrave/KiksVonGrave/assets/156866994/8284b805-c065-4777-a30c-6ddf61ab0db6)
+- ⚡ Fun fact: I'm in my 30's and trying to find my own path... never is too late
 
 
 <!---
